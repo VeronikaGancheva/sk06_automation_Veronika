@@ -1,0 +1,2 @@
+# sk06_automation_Veronika
+new
